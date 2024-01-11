@@ -5,7 +5,7 @@
 * Celine Kerfant, Cel31, archaeobotany
 
 ### Add your Name, GitHub Name, Discipline
-* Sofia Angelbratt - Media & Culture
+* Sofia Angelbratt - sofiaadina96 - Media & Culture
 *
 *
 *
